@@ -1,0 +1,2 @@
+# Westerado_Double_Barreled_cn
+西部正义汉化补丁by涉川良
